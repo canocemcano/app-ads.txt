@@ -1,1 +1,1 @@
-# apptext.github.io
+google.com, pub-5317709774974749, DIRECT, f08c47fec0942fa0
